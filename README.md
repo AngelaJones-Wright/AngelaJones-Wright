@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AngelaJones-Wright
+- 👋 Hi, I’m @Angela Jones-Wright, call me Angela please.
 - 👀 I’m interested in  all sorts of things. Jack of all trades a master of a few...Ask me in an email.
 - 🌱 I’m currently learning updating skills on unity.
 - 💞️ I’m looking to collaborate on anything
